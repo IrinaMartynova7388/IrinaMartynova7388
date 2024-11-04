@@ -8,7 +8,6 @@
 ![img icons8](https://github.com/user-attachments/assets/c4e471f5-1ee4-4108-9e80-80f17577002d)
 ![img icons8](https://github.com/user-attachments/assets/ce6ad7d3-c2d1-4b78-b404-8060f17b1674)
 
-Как со мной связаться:
 
 
 
